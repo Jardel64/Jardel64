@@ -7,7 +7,7 @@
 
 - 📫 Como entrar em contato comigo **Jardelaraujo5@hotmail.com**
 
-<h3 align="left">Conecte-se comigo:</h3>
+<h3 align="left">Conecte-se comigo:</h3>Jardelaraujo5@hotmail.com
 <p align="left">
 </p>
 
